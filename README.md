@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Cybershield97
 - 👀 I’m interested in women
 - 🌱 I’m currently learning Ruby on rails and support.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on your mom
 - 📫 How to reach me, slack..
 
 <!---
